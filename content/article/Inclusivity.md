@@ -1,0 +1,15 @@
+---
+title: "Inclusivity"
+date: 2020-10-30T09:58:45+05:30
+draft: true
+featuredImage: "sixth_post.jpg"
+author: "Gunjan Shah"
+---
+
+As human beings we crave for being a part of something. Its in our nature, living within our community, living with people having common purpose or a similar goal, being included.It is ironical that as a successful civilization we couldn't build a successful society, the idea presently seems flawed. The culture tends to accept less and less of distinctions and idiosyncrasies aboung its participants. The society which we create does little when it comes to acceptance ,so everyone becomes an outlier in some or the other form. The culture has morphed into that of judegement rather than togetherness, where one word silences and constricts the other. The person spewing harsh words is himself chained with the golden collar, bound by the so called standards which are basically ideas of others.
+
+Our prejudices start becoming concrete when we are exposed to our family's idealogy and as we grow up we start forming our own idealogy and notions of what is right and wrong.  So there is that window where we can change our previous notions as we are exposed to the world via the internet.In our perfection lies our very own imperfections, so do we don't really have the right to make the calls for other people fitting in. As human beings shouldn't we be fair to ourselves, we are called the greedy kind, so how can we be a miser in this aspect. Caring for others and looking after ourselves doesn't seem to be floating around anymore.
+
+Inclusivity has started as a wildfire, and morphed into a revolution.It does cause agression among the old thinkers but we cannot blame them, they are bound by their golden handcuffs. Creating a utopia was the people's dream but the current scenario is far from it, there are so many black holes in our utopia, sucking the joy out of it and breaking free from this has become the mission of the new thinkers. The set paths need continuous iterations,each iteration being more suited to the progressing generations. The paths cannot be stagnant, it needs growth and development. If not people will stop believing on this concept and find more less trodden paths, where they might be alone and we as a society will fail. We are more connected than ever now , giving the new school of thoughts a chance to spread easily. Body positivity, feminism, LGBTQ+ acceptance can be seen as promoting incusivity. the radicals need to give weightage to the thoughts of the new thinkers, otherwise the society will start getting degraded. The pitfall has already started but there is still that hope we all cling to, for that change.
+
+Everyone has their own charms and society should be a safe place for them to express who they are, respect them and endorse people to have the courage to open up more, and accept themselves. People need to start forgiving themselves,they need to be more accepting and free themselves of the golden handcuffs.
