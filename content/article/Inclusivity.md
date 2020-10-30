@@ -1,7 +1,7 @@
 ---
 title: "Inclusivity"
 date: 2020-10-30T09:58:45+05:30
-draft: true
+draft: false
 featuredImage: "sixth_post.jpg"
 author: "Gunjan Shah"
 ---
